@@ -1,4 +1,4 @@
-# 👩🏾‍💻 Ralluyati ASSOUMANI MADOUHOULI — Data & BI Consultant
+# 👩🏾‍💻 Ralluyati ASSOUMANI MADOUHOULI — SI & Data & BI Consultant
 
 🌍 Dunkerque, France | 🏢 Founder @ [Orbyte Consulting](https://orbyteconsulting.com)
 
